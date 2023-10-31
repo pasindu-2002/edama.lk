@@ -1,4 +1,4 @@
-# edma.lk
+# edama.lk
 SALE AND BUY LANDS
 ![Screenshot 2023-10-31 123722](https://github.com/pasindu-2002/edma.lk/assets/87941322/d2a15122-a59c-4ac0-ba95-2b11894e792f)
 ![Screenshot 2023-10-31 123739](https://github.com/pasindu-2002/edma.lk/assets/87941322/b972636c-12c6-4c58-b9a5-91184b496d75)
